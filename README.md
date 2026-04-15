@@ -1,6 +1,6 @@
-# Sports 24-7s
+⚡#### Watch Sports **Live** Anywhere
 
-#**Welcome to Sports 24/7 – Your Ultimate Home for Global Sports! 🏆**
+## **Welcome to Sports 24/7 – Your Ultimate Home for Global Sports! 🏆**
 
 We bring you the heartbeat of the sporting world, 24 hours a day, 7 days a week. Whether you are looking for live streams, match schedules, or expert pre-game analysis, we’ve got you covered.
 
